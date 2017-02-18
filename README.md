@@ -1,2 +1,0 @@
-# remziyeakdogan.github.io
-website
